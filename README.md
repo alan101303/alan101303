@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Mathematics and Informatics
 - 💞️ I’m looking to collaborate on ?
 - 📫 How to reach me ?
-- 😄 Pronouns: Alan
+- 😄 Pronouns: Lu/cky
 - ⚡ Fun fact: I like Pizza without Mozzarella
 
 <!---
