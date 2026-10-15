@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @alan101303
-- 👀 I’m interested in Space and Business and Anime and more
+- 👋 Hi, I’m Lessev
+- 👀 I’m interested in Coding, Anime, Space exploration and more
 - 🌱 I’m currently learning Mathematics and Informatics
 - 💞️ I’m looking to collaborate on ?
 - 📫 How to reach me ?
